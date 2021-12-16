@@ -11,4 +11,4 @@ Sukanya ngancam kucing lain
 
 bahkan melakukan KDRT 
 
-cerita yang lebih seru bisa dibaca di [Serambi Naqiibah] (https://www.naqiibah.com/2021/10/rumah-di-tengah-hutan-1.html)
+cerita yang lebih seru bisa dibaca di [Serambi Naqiibah](https://www.naqiibah.com/2021/10/rumah-di-tengah-hutan-1.html)
