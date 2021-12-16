@@ -1,6 +1,14 @@
 ---
 layout: base
 ---
-blog personal(https://www.naqiibah.com/) yang ditujukan untuk menghimpun segala yang ada dalam pikiranku 
- 
-semoga bisa menjadi hal yang bermanfaat bagi diri sendiri maupun orang lain
+kucing oren galak
+
+Kasihan kucing yang punya orangtua kocheng oren, 
+
+Nggak bisa bermanja-manja
+
+Sukanya ngancam kucing lain
+
+bahkan melakukan KDRT 
+
+cerita yang lebih seru bisa dibaca di Serambi Naqiibah (https://www.naqiibah.com/2021/10/rumah-di-tengah-hutan-1.html)
